@@ -1,6 +1,6 @@
 ### Hi there 👋, My name is Shoyshob
 #### C Programmer
-![C Programmer](https://scontent.fdac24-3.fna.fbcdn.net/v/t39.30808-6/324265822_686393176353443_988212549228477792_n.jpg?_nc_cat=106&ccb=1-7&_nc_sid=09cbfe&_nc_eui2=AeFoMf98vr1OpPTO4HaeU7E2K0HZiW_LqfArQdmJb8up8K41-q5VFH_TsVjigoPiTw3mEca0IwQYDpa4yulQC4Kh&_nc_ohc=Zg6Nryp82NwAX9PHXEL&tn=3EvtpF6m5pUGEDLA&_nc_ht=scontent.fdac24-3.fna&oh=00_AfCkMzP6pH_YPV4LDpU5Sxtc5eW2ylj9yg-rT1eg1XGtIw&oe=63D1AFA9)
+![C Programmer](https://www.facebook.com/messenger_media/?attachment_id=670087171564686&message_id=mid.%24cAAAB-3u3mAeMBf8fZWF1LmXqdXCu&thread_id=100077008482119)
 
 I am a Programmmer 
 
